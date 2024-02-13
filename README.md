@@ -1,6 +1,4 @@
-# Privacy-Policy
-Talking Poker Timer Privacy Policy
-TALKING POKER TIMER PRIVACY POLICY
+# TALKING POKER TIMER PRIVACY POLICY
 
 Last updated February 12, 2024
 
